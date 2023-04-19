@@ -1,6 +1,6 @@
 # La Tumba de las Luciérnagas
 
-_Reseña elaborada por Kimberline Reyes Macis_
+_Reseña y Analisis elaborada por Kimberline Reyes Macis_
 
 ## Ficha Técnica 
 - Dirección:Isao Takahata
@@ -49,18 +49,18 @@ Para dar una pincelada en el contexto histórico, uno de los artículos de Natio
 
 Realmente como nos dice el Articulo, Japón ya veía su derrota, su ciudades estaban pasando una gran hambruna y muchas de sus ciudades habían sido devastadas, asique _porque_, no se tenía ningún interés económico, se nos dice en el Articulo que EE. UU al Japón negarse a firma su rendición (más que todo por orgullo) EE. UU inicio inmediatamente operativos, analizando el territorio japones, analizando cual de sus ciudades más influyentes seguía en pie, escogiendo a Hiroshima, como primer objetivo, al estudiar el territorio los Estadounidenses sabían cual ciudad era la que podía ser la determinante de la rendición de los Japoneses, llevando a cabo a mi opinión un estudio regional en manos de geógrafos,  siendo esta una de las maneras más factibles de poder dar justo en el blanco. 
 
-Y en mi pensamiento Japón fue un objetivo perfecto para EE. UU para llevar a una "Prueba" a gran escala, siendo esta un éxito, no solo por el tamaño de la ciudad atacada si no por Japón mismo, los EE. UU podían estudiar las repercusiones de su creación en su "prueba a gran escala" (Japón) y ver como el paisaje de la zona es moldeado por diferentes factores químicos y ambientales, además del flujo de población, tenemos que tomar en cuenta que la población japonesa cayo drásticamente, como los vimos en el resumen anterior de _la Tumba de las luciérnagas_ el hambre y el desplazamiento por parte de los Japoneses moldeo el paisaje,  convirtiéndose las ciudades menos afectadas en los epicentros por aquella época. 
+Y en mi pensamiento Japón fue un objetivo perfecto para EE. UU para llevar a una "Prueba" a gran escala, siendo esta un éxito, no solo por el tamaño de la ciudad atacada si no por Japón mismo, los EE. UU podían estudiar las repercusiones de su creación en su "prueba a gran escala" (Japón) y ver como el paisaje de la zona es moldeado por diferentes factores químicos y ambientales, además del flujo de población, tenemos que tomar en cuenta que la población japonesa cayo drásticamente, como los vimos en el resumen anterior de _la Tumba de las luciérnagas_ el hambre y el desplazamiento por parte de los Japoneses moldeo el paisaje,  convirtiéndose las ciudades menos afectadas en los epicentros con mayor auje de población factor en desbentaja ya que si hubiera ocurrido un ataque en la misma zona millones mas hubieran muerto por aquella época. 
 
-También el como ciencias como la geografía, topografía, cartografía, Arquitectura y etc., fueron las encargadas de volver a reconstruir las ciudades, tendiendo que hacer un estudio intenso sobre factores como el suelo para ver que tan factible era construir una ciudad desde cero.
+También el como ciencias como la geografía, topografía, cartografía, Arquitectura y etc, fueron las encargadas de volver a reconstruir las ciudades, tendiendo que hacer un estudio intenso sobre factores como el suelo para ver que tan factible era construir una ciudad desde cero.
 A día de hoy las devastadoras repercusiones de la Bomba Atómica en Japón dejaron cicatrices en este país, modificando su paisaje, confirmándonos que los únicos que pueden cambiar una región son los mismos seres humanos.
 
 - [Bomba atómica de Hiroshima: 4 datos que explican cómo se produjo el primer bombardeo nuclear de la historia](https://www.nationalgeographicla.com/historia/2022/08/bomba-atomica-de-hiroshima-4-datos-que-explican-como-se-produjo-el-primer-bombardeo-nuclear-de-la-historia)
 
 Como punto cierre personal, para nadie es un misterio que la Guerra es una de las aberraciones más grandes cometidas por la humanidad, no solo por las masacres en el momento que dejan, millones de muertes, si no por los problemas a largo plazo, y esta película nos muestra esa cruda eh inhumana realidad, la historia esta basada en 2 hermanos japoneses que vivieron esos momentos de angustia en carne propia,  para muchos esta película es evidencia de como el único ser que nunca debió de haber existido es el humano y para otros muestra un historia de crueldad por parte de aquellas personas que con los medios suficientes no brindaron su ayuda a aquellos que lo necesitaban. 
-Para mi esta es una película que conmemora a todos aquellos niños que en su plena infancia eh inocencia tuvieron que vivir momentos tan desgarradores como estos, niños que no tenían la culpa de nada y aun asi pagaron por una guerra que no pidieron.
+Para mi esta es una película que conmemora a todos aquellos niños que en su plena infancia eh inocencia tuvieron que vivir momentos tan desgarradores como estos, niños que no tenían la culpa de nada y aun asi pagarón por una guerra que no pidierón.
 Al analizar el nombre de esta película y terminar de ver la película ese nombre tiene todo el sentido, las luciérnagas son como nosotros, son tan frágiles, bellas y llenas de vida, pero como simples mortales que somos, esa luz, esa vida que tanto la caracteriza tarde o temprano se tiene que apagar, como en la película los hermanos tuvieron breves momentos de felicidad plena,  donde brillaron en su inocencia hasta terminar **desvaneciendo**. 
 
-La pelicula aunque no lo paresca realmente tiene una conexión con la *Geografia*, solo resalto el factor social y como este drasticamente cambio el paisaje de una región tal y como los vimos en la pelicula, las bombas, el desplazamiento de población y las altas estadísticas de muertes, cambiaron todo un pais, siendo Japón un ejemplo de la mobilidad de la poblacion y sus repercuciones en determinadas zonas. 
+La pelicula aunque no lo paresca realmente tiene una conexión con la *Geografia*, solo resalto el factor social y como este drasticamente cambio el paisaje de una región tal y como los vimos en la pelicula, las bombas, el desplazamiento de población y las altas estadísticas de muertes, cambiaron todo un pais, siendo Japón un ejemplo de la mobilidad de la población y sus repercuciones en determinadas zonas. 
 
 ![La Tumba de las lucienagas, Imagen publicada en el sitio WEB generacionghibli.com, por Israel Vallejo, 20 de mayo del 2014](https://4.bp.blogspot.com/-xN3kAWsTn2w/U3tg6ZnJfOI/AAAAAAAADbQ/MYUzQcbAJ4A/s1600/tumba-12.jpg) 
 
@@ -90,6 +90,6 @@ El estudio de animación _Studio Ghibli_ a sido el responsable de grandes obras,
 
 5. Israel Villejo, I. (2014). 'La tumba de las luciérnagas', la novela de Akiyuki Nosaka [Imagen]. https://generacionghibli.blogspot.com/2014/05/la-tumba-de-las-luciernagas-la-novela.html 
 
-6. Takahata, I. (Director). (1988). _La tumba de las luciérnagas_ [Película]. Estudio Ghibli, Shinchōsha. 
+6.  National Geographic España. (2022, 5 agosto). National Geographic. https://www.nationalgeographicla.com/historia/2022/08/bomba-atomica-de-hiroshima-4-datos-que-explican-como-se-produjo-el-primer-bombardeo-nuclear-de-la-historia
 
-7.  National Geographic España. (2022, 5 agosto). National Geographic. https://www.nationalgeographicla.com/historia/2022/08/bomba-atomica-de-hiroshima-4-datos-que-explican-como-se-produjo-el-primer-bombardeo-nuclear-de-la-historia
+7. Takahata, I. (Director). (1988). _La tumba de las luciérnagas_ [Película]. Estudio Ghibli, Shinchōsha. 
