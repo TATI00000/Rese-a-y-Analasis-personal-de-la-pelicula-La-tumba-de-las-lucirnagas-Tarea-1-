@@ -30,7 +30,7 @@ Los dos hermanos, Seita y Setsuko se encontraban en la ciudad de Kobe con su mad
 
 Estando los dos hermanos solos Seita opta por ir a donde una tia que les da asilo, dándole a esta los suministros que habían resguardado antes del devastador ataque aunque este guarda una lata de dulces que le encantan a su hermana, la convivencia con la tia iba bien al principio hasta que la situación se vuelve más tensa hasta llegar a un punto de quiebre,  los hermanos salen otra vez a dar un paseo y son nuevamente sorprendidos por un bombardeo corren y descubre un refugio antiaéreo, el que deciden seria su hogar, _sin imaginar que ese seria el comienzo de la decadencia de estos hermanos_ . 
 
-
+! [La Tumba de las lucienagas, Imagen publicada en el sitio WEB generacionghibli.com, por Israel Vallejo, 20 de mayo del 2014] (dos.jpg)
 
 Al instalarse en su nuevo hogar compran todo lo que necesitan comida y demás, en la noche atrapan luciérnagas y estas les brindan un show de luces a los hermanos, al día siguiente las luciérnagas ya no están vivas y Setsuko entre lagrimas en sus ojos las comienza a enterrar diciendo que las enterraría tal y como enterraron a su madre,  resulta que la tia le había dicho a la niña que su madre estaba muerta, Seita solo rompe en llanto. 
 
@@ -62,7 +62,7 @@ Al analizar el nombre de esta película y terminar de ver la película ese nombr
 
 La pelicula aunque no lo paresca realmente tiene una conexión con la *Geografia*, solo resalto el factor social y como este drasticamente cambio el paisaje de una región tal y como los vimos en la pelicula, las bombas, el desplazamiento de población y las altas estadísticas de muertes, cambiaron todo un pais, siendo Japón un ejemplo de la mobilidad de la poblacion y sus repercuciones en determinadas zonas. 
 
-! [La Tumba de las lucienagas, Imagen publicada en el sitio WEB generacionghibli.com, por Israel Vallejo, 20 de mayo del 2014] (https://4.bp.blogspot.com/-xN3kAWsTn2w/U3tg6ZnJfOI/AAAAAAAADbQ/MYUzQcbAJ4A/s1600/tumba-12.jpg) 
+![La Tumba de las lucienagas, Imagen publicada en el sitio WEB generacionghibli.com, por Israel Vallejo, 20 de mayo del 2014] (https://4.bp.blogspot.com/-xN3kAWsTn2w/U3tg6ZnJfOI/AAAAAAAADbQ/MYUzQcbAJ4A/s1600/tumba-12.jpg) 
 
 **_Banda Sonora y Estudio:_** 
 
